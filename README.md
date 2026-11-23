@@ -1,2 +1,0 @@
-# Mahalaxmi
-Always smile 
